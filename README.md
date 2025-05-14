@@ -1,1 +1,1 @@
-Check [adamatti](https://githubcom/adamatti) instead
+Check [adamatti](https://github.com/adamatti) instead
